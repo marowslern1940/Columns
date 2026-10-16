@@ -214,4 +214,4 @@ Columns is provided as a **full free version** for Windows, with all features an
 Don't miss out on the fun — **download Columns free today** and enjoy hours of classic gem-matching excitement!
 
 ---
-**Last updated:** 2026-10-16 12:49:03 UTC
+**Last updated:** 2026-10-16 17:03:03 UTC
